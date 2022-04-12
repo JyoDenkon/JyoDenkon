@@ -1,4 +1,4 @@
-With abundance of difficuties to start studying
+Feel serenity of time with heart.
 
 <!---
 JyoDenkon/JyoDenkon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
